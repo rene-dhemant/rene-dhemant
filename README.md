@@ -1,4 +1,4 @@
-René has been working as an independent strategic & technical SEO consultant across Europe for more than 7 years while utilizing his SEO knowledge on an executive-level for the bigger players in the market. Mostly focusing on E-Commerce and SaaS clients with an international scope across all sales channels like B2B, D2C and B2C.
+René has been working as an independent strategic & technical SEO consultant across Europe for nearly a decade while utilizing his SEO knowledge on an executive-level for the bigger players in the market. Mostly focusing on E-Commerce and SaaS clients with an international scope across all sales channels like B2B, D2C and B2C.
 
 - 👋 Hi, I’m @rene-dhemant > Rene Dhemant Online-Marketing
 - 😊 Work & Vita under https://dhemant.de/
